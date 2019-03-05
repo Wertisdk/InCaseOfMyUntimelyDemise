@@ -1,4 +1,4 @@
-# In Case of My Untimely Demise
+# In case of my untimely demise
 _Something has happened and I am terribly sorry for the mess I have left_  
 _- Allan_  
 
